@@ -5,4 +5,4 @@
 > [!note]
 > 成为我们的成员：
 > 
-> 请前往b站 [仓颉-XLord](https://space.bilibili.com/3706963399542957) 请求。
+> 请前往b站 [XLord_cangjie](https://space.bilibili.com/3706963399542957) 请求。
